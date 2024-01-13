@@ -5,7 +5,8 @@
 - 📫 How to reach me ...harsh.baxi@torntomu.ca
 - 
 - 😄 Pronouns: ...He/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... The Devil who walks earth
+- 
 
 <!---
 harshbaxi9405/harshbaxi9405 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
